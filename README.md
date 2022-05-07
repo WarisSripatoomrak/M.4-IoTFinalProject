@@ -6,4 +6,4 @@
   
   I could say that that was the first time I had a real experience with codes, it was a steep learning curve, but I've managed to make it work. The appreciation for computers sprung up from that point on.
   
-  I cannot thank my helper, my teacher, and all the way to Apple enough for dedicating their precious time to inspire me.
+  I cannot thank my helper, my teacher, my parents, my elder brother, and all the way to Apple enough for dedicating their precious time to inspire me.
